@@ -11,8 +11,7 @@
 - 💞️ I’m looking to collaborate on ... not looking rn
 - 📫 How to reach me ... email me at herrgurka900121@gmail.com
 - 😄 Pronouns: ... he/him/admin
-- ⚡ Fun fact: ...I like die (dice in plural)
-
+- ⚡ Fun fact: ... I like dice 🎲 
 
 
 
